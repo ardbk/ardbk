@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ardbk
+- 🌱 I’m currently studying Electrical and Computer Engineering
+- 👨‍💻 I’m looking for an internship or working student positions
